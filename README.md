@@ -1,1 +1,1 @@
-# AgriWatch-Earth-Guard-
+# AgriWatch-EarthGuards-
